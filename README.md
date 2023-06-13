@@ -1,0 +1,1 @@
+# karta-verzija2
